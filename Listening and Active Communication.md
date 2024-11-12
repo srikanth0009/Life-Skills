@@ -29,7 +29,7 @@
 * If a conversation is getting heated, adopting a passive stance can sometimes help calm the situation down.
 * In a group setting, I might stay quiet to avoid drawing attention.
 ### When do you switch into Aggressive communication styles in your day to day life?
-* In situations where I feels that they are being unfairly treated by a superior.
+* In situations where I feels that being unfairly treated by a superior.
 * When stress levels are high, patience can be low, making it easier to respond aggressively.
 * When someone is consistently disregarding my clear boundaries.
 ### When do you switch into Passive Aggressive (sarcasm/gossiping/taunts/silent treatment and others) communication styles in your day to day life?
