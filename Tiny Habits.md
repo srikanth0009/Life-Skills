@@ -24,7 +24,7 @@ The idea about identity is that lasting habits come from who we believe we are, 
 * Adjust your environment to make it harder to fall into negative habits.
 * Make it difficult to engage in the habit by committing to something that forces you to stick to your goals.
 ### Pick one habit that you would like to do more of? What are the steps that you can take to make it make the cue obvious or the habit more attractive or easy and or response satisfying?
-I’d like to do more of is reading books
+I’d like to do more of is reading books.
 * Place books in visible areas—near my bed, on the coffee table, or in my bag.
 * Link reading to an existing habit, like reading a few pages after my morning coffee or before bed.
 * Choose topics or genres I’m genuinely interested in, which naturally draws me to read.
